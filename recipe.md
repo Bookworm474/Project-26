@@ -1,0 +1,7 @@
+1. The following are the steps to make mallowmelt cookies:
+    1. In a medium mixing bowl, whisk together flour, salt and baking soda; set aside
+    1. In a large mixing bowl, stir together melted butter and both sugars until smooth. Add egg and vanilla and mix until combined, making sure to scrape down the sides of the bowl. (Note: This can also be done in a stand mixer with paddle attachment or with a hand mixer—your preference!)
+    1. Add half of he flour mixture to the wet ingredients and stir until combined. Then add the remaining flour mixture and stir until the batter is smooth, making sure to scrape down the sides of the bowl.
+    1. Gently stir in chocolate and butterscotch chips until combined. Cover bowl wit plastic wrap and chill dough for at least two hours (or as long as overnight).
+    1. Prehead oven to 350 degreen Fahreinheit. ake cookie dough out of fridge and let stand for 10 minutes. Line cookie sheets with parchment paper. Scoop 2 tablesppons of dough per cookie and roll into balls. Arrange cookie dough balls 2 inches apart on each tray and bake for 12 minutes.
+    1. While cookies are baking, cut the marshmallows in half, and after the 12 minutes have passed, quickly remove cookie trays from oven and place half a marshmallow, cut-side down, on top of each cookie. Return cookies to oven and bake for 2 more minutes. Remove cookies from oven and allow them to cool on trays for 5-10 minutes, then transfer to a cooling rack and let them cool completely.
